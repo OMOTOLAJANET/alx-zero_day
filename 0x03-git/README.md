@@ -1,1 +1,1 @@
-jesus is lord
+jesus is mighty
